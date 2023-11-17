@@ -1,7 +1,7 @@
 # Hora para Treintañeros
 Las cuatro de la madrugada
 
-[_En tu voz, solo un pálido adios_](https://www.youtube.com/watch?v=d5jjeTDKzT))
+[_En tu voz, solo un pálido adios_](https://www.youtube.com/watch?v=d5jjeTDKzTM)
 
 Paulina Vega Márquez
 
